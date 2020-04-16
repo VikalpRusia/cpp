@@ -1,1 +1,0 @@
-TAREEF kar dena meri
